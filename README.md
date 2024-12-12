@@ -5,7 +5,4 @@
       2. WI-FI
 ![Screenshot 2024-12-13 010214](https://github.com/user-attachments/assets/7f94afc1-d6ea-4f38-b742-7a38f29820a1)
 
-
-![Screenshot 2024-12-13 010328](https://github.com/user-attachments/assets/0fc5e96a-df94-4200-9b91-8a8e7f44617e)
-
 ....download software for more information
